@@ -1,0 +1,2 @@
+# ITGOYO-THINK
+个人随想
